@@ -1,1 +1,1 @@
-These are my imgs I use on my web pages 😍😘
+These are the imgs I use on my web pages 😍😘
